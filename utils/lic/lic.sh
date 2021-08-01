@@ -1,0 +1,1 @@
+# Copyringht Zaspi Softwares
